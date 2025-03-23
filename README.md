@@ -1,0 +1,1 @@
+# Soma-dos-termos-pa
